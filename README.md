@@ -1,6 +1,6 @@
 ## ✿✿✿
 
-<!--
+<--
 ✿ You can call me Candy. Read more info about me on my Rentry and Strawpage! You can also leave a comment on my Atabook if you wanna ask me anything ^^
 
 Uhhh... one day I'll learn how to make this look good...
